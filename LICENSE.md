@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with Trello for macOS premium Integration - custom shortcuts and real-time editing, the #1 integration. Includes custom shortcuts and real-time editing
 
 
 
